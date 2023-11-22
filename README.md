@@ -1,2 +1,19 @@
-# RTS
-RAILWAY TICKETING SYSTEM
+ 
+ 
+ 
+ 
+ 
+ 
+ 	 
+ 
+ 
+ 
+ 
+ 	 
+ 
+ 
+ 	 
+ 
+  
+ 
+ 
